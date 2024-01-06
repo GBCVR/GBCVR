@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GBCVR
+- 👀 I’m interested in Gorilla Tag Youtube Content
+- 🌱 I’m currently learning Modding (In Private or Public Modded lobbies)
+- 💞️ I’m looking to collaborate on GTAG
